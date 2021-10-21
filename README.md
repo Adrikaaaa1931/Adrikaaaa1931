@@ -14,8 +14,6 @@
 
 ›› likes : games, watching anime and pizza !
 
-›› dislikes : rude or mean people.
-
 ︶︶꒦꒷︶ ₊˚ ♡
 
 ›› All my codes, or works are displayed here and only here.

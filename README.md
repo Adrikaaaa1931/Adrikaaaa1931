@@ -4,8 +4,6 @@
 	
 ›› name : Adrika
 
-›› age : 12
-
 ›› birthday : Nov 2nd
 
 ︶︶꒦꒷︶ ₊˚ ♡
